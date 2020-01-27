@@ -1,2 +1,0 @@
-# vuralbey
-x
